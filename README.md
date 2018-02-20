@@ -1,1 +1,3 @@
-# Aula-2.1
+Juliana Paes
+Mariana Rui Barbosa
+Sabrina Sato
