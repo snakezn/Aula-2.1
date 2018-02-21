@@ -1,3 +1,4 @@
 Juliana Paes 
-Mariana Rui Barbosa 
+Adriana Ferrari 
 Juliana Salimeni
+Luiza Mel
